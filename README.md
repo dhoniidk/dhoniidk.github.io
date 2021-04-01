@@ -1,2 +1,4 @@
-# ainkbucin
-Aku butuh kasih sayang dari kamu :(
+# Ungkapan Hati
+Aku sayang sama kamu
+Aku cinta sama kamu
+Mau nggak jadi pacar aku?
